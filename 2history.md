@@ -89,7 +89,8 @@ items as prizes and several food booths for the hungry or thirsty fair-goers.
 Because of the continuing community involvement, it can truly claim to be not only the oldest, but 
 the BEST fair in this area of Oklahoma. 
 
-Written and published in 1990 by Lura Nell Tolle for the Hydro Review, then updated for this book in 
-1998. Submitted by Ramona (Armstrong) Duff 
+Written and published in 1990 by Lura Nell Tolle for the Hydro Review, then updated for this book in 1998. 
+
+Submitted by Ramona (Armstrong) Duff 
 
 

@@ -18,10 +18,6 @@ active: faqs
 
 **A:** The Hydro Fair is always the second weekend preceding Labor Day weekend.
 
-**Q:**
-
-**A:** 
-
 **Q: Is it true some kid died on the Green Machine?**
 
 **A:** That's something your older brother told you so you would leave him alone. The kid actually died on the Hustler.
