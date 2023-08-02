@@ -31,7 +31,7 @@ active: faqs
 **Q: Who operates the Hydro Free Fair?**
 
 **A:** The people that operate the rides, games, and exhibits are all residents and volunteers.
-Some families have been working at the Hydro Fair have been doing so for 5 generations and longer.
+Some families working at the Hydro Fair have been doing so for 5 generations and longer.
 
 **Q: When is the next Hydro Free Fair?**
 
