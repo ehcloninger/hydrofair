@@ -33,20 +33,20 @@ years were aero-plane rides, balloon ascensions and a 270-pound cake baked by E.
 Ribbon Bakery. The balloon ascension took place from the location where city hall now stands. A large, 
 heavy cloth balloon was filled with smoke and the more smoke it held, the lighter it became and the 
 farther it would sail when released into the air. A tub or metal basket was attached to the balloon with 
-ropes for a man to go up in. There was always speculation as to where the bal-loon would come down, and 
+ropes for a man to go up in. There was always speculation as to where the balloon would come down, and 
 it always did with no one ever reported injured. 
 
 It was not uncommon in the early days for a farmer to bring in enough watermelons for everyone to help 
 themselves and eat to their fill. Another attraction was the greased pole that kept quite a number of 
 the small boys busy and the larger boys out of mischief. There was also roping contests and shooting 
-matches with neigh-boring gun clubs participating. Excursion trains brought in people from Oklahoma 
+matches with neighboring gun clubs participating. Excursion trains brought in people from Oklahoma 
 City, El Reno, Okeene, Anadarko, Geary and Weatherford. There would be ball games in the evening. 
 
 Time, pains nor money would be spared to make this the most elaborate celebration ever held in Caddo 
 County or even the neighboring counties of Blaine or Custer. The only interruption in the history of 
 the Free Fair occurred during World War I. The fair continued to be held during World War II. 
 
-In 1923 and 1924 the fair exhibits were moved to the communi-ty building on South Broadway (at the 
+In 1923 and 1924 the fair exhibits were moved to the community building on South Broadway (at the 
 corner of 5th and Broadway on the east side of the street). In 1924 W. R. Light, the president of 
 the fair association, conceived the idea of moving the fair to the city park but met with major 
 opposition. In 1925 J. D. Wells became president and, against vigorous protest, moved the fair to the 
@@ -59,7 +59,7 @@ the current community building was constructed as a WPA project and has been use
 programs ever since. 
 
 The fair continued to grow until it was the largest of its kind in Caddo County and surrounding 
-counties and soon became espe-cially famous for its horse show. Disturbed by the problems with 
+counties and soon became especially famous for its horse show. Disturbed by the problems with 
 carnival companies hired each year to provide the midway for the fair, the Hydro Amusement Company 
 was formed in 1955 and the entire fair returned to the hands of the Hydro citizens. Business houses 
 and citizens built and manned the game booths. Several rides were purchased, and several more were 
